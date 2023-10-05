@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Manthan1120 
+- 👋 Hi, I’m Manthan kevadiya .
 - 👀 I’m interested in getting more upgradation in my skill 
 - 🌱 I’m currently learning master in iOS Development
 
